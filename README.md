@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @lostagain2
-- 👀 I’m interested in learning
+- 👀 I’m interested in learning to be a Developer 
 - 🌱 I’m currently learning from zero
 - 💞️ I’m looking to collaborate on anithing
 - 📫 tikoeteko.btc@gmail.com
